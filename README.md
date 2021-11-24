@@ -1,0 +1,2 @@
+- 👋 Fanimator's here!
+- 👀 Good in gamedev and art.
